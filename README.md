@@ -36,7 +36,7 @@
 
 ---
 
-![**Дополнительные вопросы**](https://vk.com/doc260650991_653873490?hash=Y7i1jnRQ93GJT6bJmCNTzhj5yWJlM4H6tWJokczOjYD&dl=oj85P4Dn1eyYGsvkYlxjXzooOCAZL622IOut515AZaz)
+[**Дополнительные вопросы**](https://vk.com/doc260650991_653873490?hash=Y7i1jnRQ93GJT6bJmCNTzhj5yWJlM4H6tWJokczOjYD&dl=oj85P4Dn1eyYGsvkYlxjXzooOCAZL622IOut515AZaz)
 
 ---
 
